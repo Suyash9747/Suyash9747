@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Suyash9747
+- 👋 Hi, I’m @Suyash
 - 👀 I’m interested in Power BI DATA ANALYST ROLES
 - 💞️ I’m looking to collaborate on GitHUB Linkedin
 - 📫 How to reach me . through Linkedin And with Mob-9970809024
